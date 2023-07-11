@@ -1,5 +1,5 @@
 ### Hi there 👋, this is efaul 
-### develop most of my project due to interest (sounds better than no one willing to pay😅)
+### I'm developing projects due to interest (sounds better than no one willing to pay😅)
 ### I have rich experience in coding (rich, for a graduate student👈😂)
 ### ... with all kinds of languages, including C, C++, C#, python, matlab, etc.(not proficient in any🤡)
 ### My current research focus is video systems 📺📺📺📺
