@@ -3,7 +3,7 @@
 ### I have rich experience in coding (rich, for a graduate student👈😂)
 ### ... with all kinds of languages, including C, C++, C#, python, matlab, etc.(not proficient in any🤡)
 ### My current research focus is video systems 📺📺📺📺
-### Feel free to contact me via email!         📫📫📫📫
+### Feel free to contact me via email! 📫 efaulwu [at] gmail [dot] com
 
 
 ### 🐶🍐🥘✖️🔉4️⃣1️⃣，7️⃣☁️🔥🦇👃🎼🈯
