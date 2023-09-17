@@ -1,7 +1,4 @@
-### Hi there 👋, this is efaul 
-### I'm developing projects due to interest (sounds better than no one willing to pay😅)
-### I have rich experience in coding (rich, for a graduate student👈😂)
-### ... with all kinds of languages, including C, C++, C#, python, matlab, etc.(not proficient in any🤡)
+### Hi there 👋, this is efaul
 ### My current research focus is video systems 📺📺📺📺
 ### Feel free to contact me via email! 📫 efaulwu [at] gmail [dot] com
 
