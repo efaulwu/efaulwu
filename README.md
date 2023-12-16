@@ -3,6 +3,9 @@
 ### Feel free to contact me via email! 📫 efaulwu [at] gmail [dot] com
 
 
+### Fan of Hatsune Miku
+### Used to live in Gensokyo
+
 ### 🐶🍐🥘✖️🔉4️⃣1️⃣，7️⃣☁️🔥🦇👃🎼🈯
 
 <!--
