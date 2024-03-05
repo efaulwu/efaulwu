@@ -1,10 +1,7 @@
-### Hi there 👋, this is efaul
-### My current research focus is video systems 📺📺📺📺
-### Feel free to contact me via email! 📫 efaulwu [at] gmail [dot] com
+### Hi there, this is efaul
+### My current research focus is video systems and immersive computing
+### Feel free to contact me via email!  efaulwu [at] gmail [dot] com
 
-
-### Fan of Hatsune Miku
-### Used to live in Gensokyo
 
 ### 🐶🍐🥘✖️🔉4️⃣1️⃣，7️⃣☁️🔥🦇👃🎼🈯
 
