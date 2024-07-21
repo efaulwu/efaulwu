@@ -1,4 +1,4 @@
-### Hi there, this is Zhengguan Wu. I'm currently a Ph.D. student at department of Information Sciences and technology,  George Mason University
+### Hi there, this is Zhengguan Wu. I'm currently a Ph.D. student at IST Department,  George Mason University
 ### My current research focus is video systems and immersive computing
 ### Feel free to contact me via email!  efaulwu [at] gmail [dot] com
 
