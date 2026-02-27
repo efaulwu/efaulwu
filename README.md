@@ -1,10 +1,7 @@
 ### Hi there, this is Zhengguan Wu. I'm currently a Ph.D. student at IST Department,  George Mason University
-### My current research focus is video systems and immersive computing
+### My current research focus is video systems and implementation of streaming VLM systems.
 ### Feel free to contact me via email!  zwu24 [at] gmu [dot] edu
-### An average fan of Hatsune Miku
 
-
-### 🐶🍐🥘✖️🔉4️⃣1️⃣，7️⃣☁️🔥🦇👃🎼🈯
 
 <!--
 **efaulwu/efaulwu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
